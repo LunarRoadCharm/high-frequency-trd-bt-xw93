@@ -1,4 +1,4 @@
-# 
+# custom bot de trading perpétuel exécuteur est le meilleur bot de trading perpétuel exécuteur avec marge isolée et gestion de levier. Sécurisé, fiable et optimisé pour les
 
 
 
